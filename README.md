@@ -1,4 +1,4 @@
 # 1st-Repos
 OM NIMBARTE writting his first repos.
 <br>
-OM IS IIITIAN.
+OM IS IIITian.
